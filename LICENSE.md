@@ -1,4 +1,4 @@
-#  
+#  vip Script for jujutsu infinite is the best jujutsu infinite Script, featuring infinite resources and silent aim. Safe and powerful for all your
 
 
 
